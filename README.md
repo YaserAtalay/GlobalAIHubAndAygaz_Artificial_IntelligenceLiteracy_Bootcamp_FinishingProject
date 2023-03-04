@@ -1,0 +1,2 @@
+# GlobalAIHubAndAygaz_Artificial-ntelligenceLiteracy_Bootcamp_FinishingProject
+Global AI Hub and Aygaz artificial intelligence literacy training camp completion project
